@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou Marcos Santos!
+# 👋 Olá, meu nome é Marcos Santos!
 
 
 ## 🚀 Sobre Mim
